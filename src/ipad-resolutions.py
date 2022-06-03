@@ -1,0 +1,1 @@
+ipad resolution code
